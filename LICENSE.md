@@ -4,7 +4,7 @@
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://Mergedeloscillate24.github.io/the-strongest-battlegr-wi21/ ) |
  |---------------------|----------------------:|
 
 
